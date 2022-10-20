@@ -1,0 +1,1 @@
+# ninjastudy.github.io
